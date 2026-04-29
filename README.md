@@ -1,0 +1,1 @@
+# versiculo_do_dia_politica_privacidade
